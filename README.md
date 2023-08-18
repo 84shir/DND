@@ -4,13 +4,13 @@
 ## Character: **Kensei of Three Swords**
 
 ### Session 8/17/2023
-
+4DT --> +2 Will (18 will)
 ####  Bloodline: *Fenrir*
 
 * Pack Leader
 * Pack Leader
 * Beast Sovereignty
-* Licanthropy
+* Lycanthropy
 * Natural Instinct
 * Natural Instinct
 * ~~Natural Predator~~
@@ -36,3 +36,8 @@ ROLLED: **MOON CONSTITUTION**
     >  Death Perception
 
 #### END Bloodline Guy interaction. **-250 Gold**.
+
+#### COMBAT: FIEND ATTACK AT THE WALL (INITIATIVE 12)
+* +1 INSPIRATION FOR FUNNY ("Pile of ash with blinking eyes after one shot fire breath...")
+* -1 INSPIRATION (IT WAS WORTH IT)
+**NOTE** You have 2DT leftover from the prison. 
