@@ -3,7 +3,7 @@
 
 ## Character: **Kensei of Three Swords**
 
-### Session 8/17/2023
+### Session 8/18/2023
 4DT --> +2 Will (18 will)
 ####  Bloodline: *Fenrir*
 
