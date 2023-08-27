@@ -41,3 +41,22 @@ ROLLED: **MOON CONSTITUTION**
 * +1 INSPIRATION FOR FUNNY ("Pile of ash with blinking eyes after one shot fire breath...")
 * -1 INSPIRATION (IT WAS WORTH IT)
 **NOTE** You have 2DT leftover from the prison. 
+
+**END COMBAT** 
+
+No loot :(
+Scarlet is too damn strong lol
+
+Meeting w/ city leaders about the Ravanger.
+
+## RAVANGER:
+  > FIEND
+  > EVIL
+  > OUCH LOL
+
+** + 200 CP 
+
+### Stupid RP Situation w/ Lady Angela at the CP place
+  > + 1 random spell (disguise self)
+
+#### +3 DT 
